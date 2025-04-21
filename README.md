@@ -1,2 +1,2 @@
 # supertrunfo2
-segundo trabalho
+segundo trabalho super trunfo
